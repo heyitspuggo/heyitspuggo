@@ -12,5 +12,7 @@ My preferred method of contact for just about anything formal would be my email,
 If you'd just like to talk about a project (or something else) you can also contact me through [Twitter](https://twitter.com/heyitspuggo) direct messages.
 > Be warned; as dragons may lurk on my Twitter. I don't always retweet the most "safe-for-work" content.
 
+I've also got a profile on [rustaceans.org](https://www.rustaceans.org/search/heyitspuggo) if you'd like to see that for more social links.
+
 ### whatelse?
 If you happen to have an issue with the LGBT community, the furry fandom, or the Black Lives Matter movement, I'd kindly request you do not contact or message me.
